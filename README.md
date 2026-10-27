@@ -17,6 +17,8 @@
 
 <p align="center"> all links are under my bio , idk how to put links here LMFAAOO. </p> 
 
+ ![erigam stamp](https://64.media.tumblr.com/e9db3cfa2338e06cdc98c33fe198540b/4ee897ca3c1d591d-df/s100x200/5ec7e0ac140534467472099a018567c2fe05a6d4.webp) ![gam](https://64.media.tumblr.com/d42812cda56086047703baed0d6e6c75/4ee897ca3c1d591d-25/s100x200/ea203399452dacfa6df05415b68f825ab2827e85.pnj) ![erigam2](https://64.media.tumblr.com/198c274968658508161d157d8c15acc0/4ee897ca3c1d591d-91/s100x200/f2ea8b790b68c02937f19d832018ee3aa7b028ce.pnj)
+
 ![divider by sisterlucifergraphics on tumblr](https://64.media.tumblr.com/8278377b8db5eae6f4b77d116c92dada/19ab16eb350e0a1c-26/s1280x1920/f3c6d133965055216b20851538e508112d5c8264.pnj)
 <!--
 **pixel8tedfaygo/Pixel8tedfaygo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
