@@ -19,6 +19,8 @@
 
  ![erigam stamp](https://64.media.tumblr.com/e9db3cfa2338e06cdc98c33fe198540b/4ee897ca3c1d591d-df/s100x200/5ec7e0ac140534467472099a018567c2fe05a6d4.webp) ![gam](https://64.media.tumblr.com/d42812cda56086047703baed0d6e6c75/4ee897ca3c1d591d-25/s100x200/ea203399452dacfa6df05415b68f825ab2827e85.pnj) ![erigam2](https://64.media.tumblr.com/198c274968658508161d157d8c15acc0/4ee897ca3c1d591d-91/s100x200/f2ea8b790b68c02937f19d832018ee3aa7b028ce.pnj)
 
+ ![honk](https://64.media.tumblr.com/c74f6ab0e753e693298a59053892287b/19ab16eb350e0a1c-62/s250x400/320d0c1c70e7e76923e3bc65392d25f798763d9a.gifv) ![blinkie](https://64.media.tumblr.com/16da010e3bfa77d8b73d6f045dc1c3ad/107f38a4199aa4de-78/s250x400/2da236478b2435024f952e3aa275a3ad63cb2c28.webp) ![erigam3](https://64.media.tumblr.com/53f94a29efb4a8617918ca6bf57b9f5c/107f38a4199aa4de-cf/s640x960/a2d43cc8f3d9c58044d04ea66503be1c0ddbcee2.webp)
+
 ![divider by sisterlucifergraphics on tumblr](https://64.media.tumblr.com/8278377b8db5eae6f4b77d116c92dada/19ab16eb350e0a1c-26/s1280x1920/f3c6d133965055216b20851538e508112d5c8264.pnj)
 <!--
 **pixel8tedfaygo/Pixel8tedfaygo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
