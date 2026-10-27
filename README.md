@@ -9,6 +9,8 @@
 
 ![names](https://www.gigaglitters.com/g/0zgtslsdeon.gif)
 
+He / They / It + Honk / Honks + Clown / Clowns and MULTIPLE OTHER NEOS
+
 ![divider by sisterlucifergraphics on tumblr](https://64.media.tumblr.com/8278377b8db5eae6f4b77d116c92dada/19ab16eb350e0a1c-26/s1280x1920/f3c6d133965055216b20851538e508112d5c8264.pnj)
 <!--
 **pixel8tedfaygo/Pixel8tedfaygo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
