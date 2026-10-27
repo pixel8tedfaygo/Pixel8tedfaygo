@@ -1,4 +1,4 @@
-## Wip Wip wip
+## HoNk HoNk
 
 
 ![divider by sisterlucifergraphics on tumblr](https://64.media.tumblr.com/8278377b8db5eae6f4b77d116c92dada/19ab16eb350e0a1c-26/s1280x1920/f3c6d133965055216b20851538e508112d5c8264.pnj)
@@ -7,13 +7,15 @@
 
 ![my art](https://64.media.tumblr.com/36075524ea8d3fc71e9bcf7dbc915640/7e558ac8157c836c-2b/s1280x1920/cfdfc954a759fe532e3cec3d6ee7d9e55df94356.pnj)
 
-![names](https://www.gigaglitters.com/g/0zgtslsdeon.gif)
+![names](https://64.media.tumblr.com/0ce7146d37a93eb22bb4be9304c4dd1b/54f55b9027a97f71-dd/s1280x1920/f19ba4fa9b7b25994845c914de87397814a8b7f7.gifv)
 
 <p align="center"> He / They / It + Honk / Honks </p> 
 
-<p align="center"> all neopronouns are on pronouns.page . they are all encouraged to use </p> 
+<p align="center"> Trans + NB but I use masc terms. Physical nonhuman, gamzee fullfic, I am him he is me :o)  </p> 
 
 <p align="center"> #1 erigam lover and shipper on @ship-town </p> 
+
+<p align="center"> all links are under my bio , idk how to put links here LMFAAOO. </p> 
 
 ![divider by sisterlucifergraphics on tumblr](https://64.media.tumblr.com/8278377b8db5eae6f4b77d116c92dada/19ab16eb350e0a1c-26/s1280x1920/f3c6d133965055216b20851538e508112d5c8264.pnj)
 <!--
