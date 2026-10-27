@@ -2,7 +2,7 @@
 
 ![iforgotwhomadethis sorry](https://64.media.tumblr.com/22a1877da4e150e3cd0b50a823ac00f8/43cbaf6ca3ef70c4-4a/s400x600/8bfbe05200b56d0a28a950beaaf774a41d21ca1b.pnj)
 
-[dat me](https://64.media.tumblr.com/5c8d63f30e05faaf6ccde276b186705b/43cbaf6ca3ef70c4-31/s400x600/8c7aab3956db07cabc460be63c7ea71e9a9f194e.gifv)
+![dat me](https://64.media.tumblr.com/5c8d63f30e05faaf6ccde276b186705b/43cbaf6ca3ef70c4-31/s400x600/8c7aab3956db07cabc460be63c7ea71e9a9f194e.gifv)
 
 ![the erigams , sprite by itsdice2meetyou on tumblr ](https://64.media.tumblr.com/d49745c2880018f17339bc192f19d292/19ab16eb350e0a1c-e0/s400x600/e28c39d755a783accf3b907f4e09b90edd126b06.gifv)
 
