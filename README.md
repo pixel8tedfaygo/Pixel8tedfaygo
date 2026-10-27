@@ -1,6 +1,7 @@
 ## Wip Wip wip
 
-![iforgotwhomadethis sorry](https://64.media.tumblr.com/22a1877da4e150e3cd0b50a823ac00f8/43cbaf6ca3ef70c4-4a/s400x600/8bfbe05200b56d0a28a950beaaf774a41d21ca1b.pnj)
+
+![divider by sisterlucifergraphics on tumblr](https://64.media.tumblr.com/8278377b8db5eae6f4b77d116c92dada/19ab16eb350e0a1c-26/s1280x1920/f3c6d133965055216b20851538e508112d5c8264.pnj)
 
 ![dat me](https://64.media.tumblr.com/5c8d63f30e05faaf6ccde276b186705b/43cbaf6ca3ef70c4-31/s400x600/8c7aab3956db07cabc460be63c7ea71e9a9f194e.gifv)
 
