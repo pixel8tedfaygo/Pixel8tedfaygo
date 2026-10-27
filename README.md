@@ -1,5 +1,7 @@
 ## Wip Wip wip
 
+![divider by sisterlucifergraphics on tumblr](https://64.media.tumblr.com/8278377b8db5eae6f4b77d116c92dada/19ab16eb350e0a1c-26/s1280x1920/f3c6d133965055216b20851538e508112d5c8264.pnj)
+
 ![the erigams , sprite by itsdice2meetyou on tumblr ](https://64.media.tumblr.com/d49745c2880018f17339bc192f19d292/19ab16eb350e0a1c-e0/s400x600/e28c39d755a783accf3b907f4e09b90edd126b06.gifv)
 <!--
 **pixel8tedfaygo/Pixel8tedfaygo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
