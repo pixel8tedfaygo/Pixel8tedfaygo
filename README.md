@@ -5,14 +5,11 @@
 
 ![dat me](https://64.media.tumblr.com/5c8d63f30e05faaf6ccde276b186705b/43cbaf6ca3ef70c4-31/s400x600/8c7aab3956db07cabc460be63c7ea71e9a9f194e.gifv)
 
-![the erigams , sprite by itsdice2meetyou on tumblr ](https://64.media.tumblr.com/d49745c2880018f17339bc192f19d292/19ab16eb350e0a1c-e0/s400x600/e28c39d755a783accf3b907f4e09b90edd126b06.gifv)
+![my art](https://64.media.tumblr.com/36075524ea8d3fc71e9bcf7dbc915640/7e558ac8157c836c-2b/s1280x1920/cfdfc954a759fe532e3cec3d6ee7d9e55df94356.pnj)
 
 ![names](https://www.gigaglitters.com/g/0zgtslsdeon.gif)
 
-$$ \color{purple}{\text{
-He / They / It + Honk / Honks + Clown / Clowns}} $$
-
-[dni](https://rentry.co/forze-dj-team)
+he / they / it + honk / honks ++ 
 
 ![divider by sisterlucifergraphics on tumblr](https://64.media.tumblr.com/8278377b8db5eae6f4b77d116c92dada/19ab16eb350e0a1c-26/s1280x1920/f3c6d133965055216b20851538e508112d5c8264.pnj)
 <!--
