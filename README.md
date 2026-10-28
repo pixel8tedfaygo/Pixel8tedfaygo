@@ -17,9 +17,11 @@
 
 <p align="center"> #1 erigam lover and shipper on @ship-town </p> 
 
-<p align="center"> all links are under my bio , idk how to put links here LMFAAOO. </p> 
+<p align="center"> cuddlecomf, open to cuddles open to hides </p> 
 
 <p align="center"> open to convos, looking 4 source / canonmates too. PLZ be my friend!! I’m lonely and I promise I don’t bite. don’t be afraid to come up to me. I love talking :o) </p> 
+
+<p align="center"> all links r in my bio, idk how to put em here ;; </p> 
 
 ![textytext](https://64.media.tumblr.com/bc9770deeaad70aefa3215e3938eed8f/ae135d7ca6d17e56-73/s500x750/c8ee6d5983e28a10e888431f8a1cef7370beccd5.gifv)
 
