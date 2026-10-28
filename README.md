@@ -5,6 +5,8 @@
 
 ![dat me](https://64.media.tumblr.com/5c8d63f30e05faaf6ccde276b186705b/43cbaf6ca3ef70c4-31/s400x600/8c7aab3956db07cabc460be63c7ea71e9a9f194e.gifv)
 
+![](https://komarev.com/ghpvc/?username=pixel8tedfaygo)
+
 ![my art](https://64.media.tumblr.com/36075524ea8d3fc71e9bcf7dbc915640/7e558ac8157c836c-2b/s1280x1920/cfdfc954a759fe532e3cec3d6ee7d9e55df94356.pnj)
 
 ![names](https://64.media.tumblr.com/0ce7146d37a93eb22bb4be9304c4dd1b/54f55b9027a97f71-dd/s1280x1920/f19ba4fa9b7b25994845c914de87397814a8b7f7.gifv)
