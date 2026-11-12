@@ -14,7 +14,7 @@
 <p align="center"> He / They / It + Honk / Honks </p> 
 
 <p align="center"> fifteen years
- old, my birthday is 3/26/2011 || Trans + NB but I use masc terms. Physical nonhuman, gamzee fullfic, I am him he is me :o)  </p> 
+ old, my birthday is 3/26/2011 (( 18+ iwc )) || Trans + NB but I use masc terms. Physical nonhuman, gamzee fullfic, I am him he is me :o)  </p> 
 
 <p align="center"> #1 erigam lover and shipper on @ship-town </p> 
 
