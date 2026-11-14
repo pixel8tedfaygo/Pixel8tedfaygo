@@ -14,15 +14,20 @@
 <p align="center"> He / They / It + Honk / Honks </p> 
 
 <p align="center"> fifteen years
- old, my birthday is 3/26/2011 (( 18+ iwc )) || Trans + NB but I use masc terms. Physical nonhuman, gamzee fullfic, I am him he is me :o)  </p> 
+ old, my birthday is 3/26/2011 (( 18+ 12- iwc )) || Trans + NB but I use masc terms. Physical nonhuman, gamzee fullfic, I am him he is me :o)  </p> 
 
-<p align="center"> #1 erigam lover and shipper on @ship-town </p> 
+ <p align="center"> iwc / iwcare enc , highly sensitive, nervous, and anxious !! and I struggle with social cues aswell as tone. be patient with me. </p> 
+
+
+<p align="center"> #1 erigam lover and shipper on @ship-town and @pt-everypony , ponytowns gamzee on @pt-everypony. #mootmeup if u like erigam PLEAAAASEEE!!!!! </p> 
 
 <p align="center"> cuddlecomf, open to cuddles open to hides </p> 
 
 <p align="center"> open to convos, looking 4 source / canonmates too. PLZ be my friend!! I’m lonely and I promise I don’t bite. don’t be afraid to come up to me. I love talking :o) </p> 
 
-<p align="center"> all links r in my bio, idk how to put em here ;; if ur curious about my dni go to my rentry or my straw.page </p> 
+<p align="center"> all links are under my bio. I can’t figure out how to add em here. ;; if ur curious about my dni go to my rentry. I am currently working on a new strawpage!! </p> 
+
+<p align="center"> but to keep it simple, I don’t want pro/darkshippers interacting with me. fuck off. </p> 
 
 ![textytext](https://64.media.tumblr.com/bc9770deeaad70aefa3215e3938eed8f/ae135d7ca6d17e56-73/s500x750/c8ee6d5983e28a10e888431f8a1cef7370beccd5.gifv)
 
