@@ -23,7 +23,7 @@
 
 <p align="center"> cuddlecomf, open to cuddles open to hides </p> 
 
-<p align="center"> open to convos, looking 4 source / canonmates too. PLZ be my friend!! I’m lonely and I promise I don’t bite. don’t be afraid to come up to me. I love talking :o) </p> 
+<p align="center"> open to convos, looking 4 source / canonmates too. PLZ be my friend!! I’m lonely and I promise I don’t bite. don’t be afraid to come up to me, I AM VERY NERVOUS SO I MAY NOT BE SO TALKATIVE ONCE WE FIRST TALK. OTHERWISE i am very social . . . b patienttt. </p> 
 
 <p align="center"> all links are under my bio. I can’t figure out how to add em here. ;; if ur curious about my dni go to my new strawpage!! </p> 
 
