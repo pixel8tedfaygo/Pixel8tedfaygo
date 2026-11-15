@@ -25,7 +25,7 @@
 
 <p align="center"> open to convos, looking 4 source / canonmates too. PLZ be my friend!! I’m lonely and I promise I don’t bite. don’t be afraid to come up to me. I love talking :o) </p> 
 
-<p align="center"> all links are under my bio. I can’t figure out how to add em here. ;; if ur curious about my dni go to my rentry. I am currently working on a new strawpage!! </p> 
+<p align="center"> all links are under my bio. I can’t figure out how to add em here. ;; if ur curious about my dni go to my new strawpage!! </p> 
 
 <p align="center"> but to keep it simple, I don’t want pro/darkshippers interacting with me. fuck off. </p> 
 
