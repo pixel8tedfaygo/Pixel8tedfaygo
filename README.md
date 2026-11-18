@@ -14,16 +14,19 @@
 <p align="center"> He / They / It + Honk / Honks </p> 
 
 <p align="center"> fifteen years
- old, my birthday is 3/26/2011 (( 18+ 12- iwc )) || Trans + NB but I use masc terms. Physical nonhuman, gamzee fullfic, I am him he is me :o)  </p> 
+ old, my birthday is 3/26/2011 (( 18+ 12- iwc )) || Trans + NB but I use masc terms. alterhuman / nonhuman, gamzee fullfic I am him he is me :o). i use my typing quirk sometimes. </p> 
 
- <p align="center"> iwc / iwcare enc , highly sensitive, nervous, and anxious !! and I struggle with social cues aswell as tone. be patient with me. </p> 
+ <p align="center"> iwc / iwcare enc , highly sensitive, nervous, and anxious !! and I struggle with social cues aswell as tone. it is hard to interact with people for me as I get anxious easily. please be patient with me. if u ever wanna talk whisper me first, im not the type of person to whisper first due to being afraid im bothering u! </p> 
 
+ <p align="center"> i misspell due to being shaky + excited n just overall typing fast, please tell me to respell if u don’t know what im trying 2 spell or say </p> 
 
 <p align="center"> #1 erigam lover and shipper on @ship-town and @pt-everypony , ponytowns gamzee on @pt-everypony. #mootmeup if u like erigam PLEAAAASEEE!!!!! </p> 
 
-<p align="center"> cuddlecomf, open to cuddles open to hides </p> 
+<p align="center"> cuddlecomf, open to cuddles open to hides. i love interactions!! </p> 
 
-<p align="center"> open to convos, looking 4 source / canonmates too. PLZ be my friend!! I’m lonely and I promise I don’t bite. don’t be afraid to come up to me, I AM VERY NERVOUS SO I MAY NOT BE SO TALKATIVE ONCE WE FIRST TALK. OTHERWISE i am very social . . . b patienttt. </p> 
+<p align="center"> open to convos, looking 4 source / canonmates too. PLZ be my friend!! I’m lonely and I promise I don’t bite. don’t be afraid to come up to me.. i may seem very shy when we first start to talk but i promise i love talking!! </p> 
+
+ <p align="center"> my friend requests are disabled since it’s just a pref. but if u wanna be friends with me, ask pls! i unadd ppl that i never speak to so sorry if i unfriend u, it’s just that we never talk to eachother . </p> 
 
 <p align="center"> all links are under my bio. I can’t figure out how to add em here. ;; if ur curious about my dni go to my new strawpage!! </p> 
 
